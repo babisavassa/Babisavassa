@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-- 😎 I’m currently learning Desenvolvimento de Sistema
+- 😎 I’m currently learning Desenvolvimento de Sistemas
