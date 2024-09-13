@@ -1,3 +1,3 @@
-## Olá, Eu sou a Bárbara Savassa🤠
+## Olá, Eu sou Bárbara Savassa🤠
 
 - 😎 I’m currently learning Desenvolvimento de Sistemas
