@@ -1,7 +1,8 @@
-## Olá, Eu sou a Babi Savassa🤠
+## Olá, Eu sou a Babi Savassa🏃‍♀️
 
-- 😎 I’m currently learning Desenvolvimento de Sistemas
+- Cursando: Desenvolvimento de Sistemas
 - Boituva - SP
+- 💍
 
 <div style="display: inline_block"><br>
  
