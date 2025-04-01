@@ -1,6 +1,6 @@
 ## Olá, Eu sou a Babi Savassa🏃‍♀️
 
-- Cursando: Desenvolvimento de Sistemas
+- Cursando Desenvolvimento de Sistemas
 - Boituva - SP
 - 💍
 
